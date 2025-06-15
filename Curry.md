@@ -4,8 +4,9 @@
 - **Sal**: 3 cucharaditas → 15 ml
 - **Cilantro molido**: 2 cucharadita → 10 ml
 - **Comino molido**: 1 cucharadita → 5 ml
-- **Ajo en polvo**: ½ cucharadita → 2,5 ml
-- **Hinojo molido**: ½ cucharadita → 2.5 ml
-- **Laurel molido**: 1 hoja
+- **Ajo en polvo**: 1 cucharadita → 5 ml
+- **Hinojo molido**: ¼ cucharadita → 1.25 ml
+- **Laurel**: 1 hoja
 
-Sigue siendo demasiado hinojo, tal vez un poco soso.
+
+Pendiente de probar
