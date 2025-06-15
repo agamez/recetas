@@ -7,5 +7,5 @@
 - **Pimienta**: 1 cucharaditas → 5 ml
 - **Comino**: 1 cucharaditas → 5 ml
 
- Pendiente de probar. Posiblemente demasiada pimienta
+ Demasiada pimienta y comino, poco pimentón.
  
