@@ -9,4 +9,4 @@
 - **Laurel**: 1 hoja
 
 
-Pendiente de probar
+Le falta alegría. Quizás más cúrcuma? Sal? Picante?
